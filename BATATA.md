@@ -1,0 +1,1 @@
+[] pode não linda
