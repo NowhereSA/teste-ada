@@ -1,2 +1,2 @@
 # teste-ada
- OLÁ LUCAS
+.lord é gente boa
